@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BSashov
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning everything that I don't already know
+- 💞️ I’m currently not looking to collaborate
